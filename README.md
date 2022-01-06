@@ -1,5 +1,5 @@
 # merge-solo
 I 
-love 
+hate
 video 
 games
